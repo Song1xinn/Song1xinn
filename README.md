@@ -1,0 +1,3 @@
+- 👋 This @Song1xinn
+- 👀 major in CS at CAU & XJTU
+- 🌱 just a rookie
